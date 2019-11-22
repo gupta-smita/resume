@@ -80,6 +80,6 @@ modernizing the existing facility through procurement of new equipment
 * Worked as part of marketing team responsible for content management for the company website. Developed SEI-CMM online training program to be used within the company.
 ---
 ### Additional
-**Papers:** Cloud based services - Current trends and emerging roles for players, One Version of the Truth - HowEffective Data Management can help your organization unlock its true potential, Capgemini Microsoft Online
-Service Offering
 * Fellow of the prestigious World Nuclear University
+* Cloud based services - Current trends and emerging roles for players, One Version of the Truth - HowEffective Data Management can help your organization unlock its true potential, Capgemini Microsoft Online
+Service Offering
