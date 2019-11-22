@@ -1,8 +1,8 @@
 
 ## Smita Gupta                                            
-[gupta.smita@gmail.com](gupta.smita@gmail.com)  
-+1 206 234 4697
 
+[gupta.smita@gmail.com](gupta.smita@gmail.com)  
++1 206 234 4697 
 Seattle, WA
 
 Senior Management professional with global exposure across consulting and industry. Extensive experience in Strategy formulation, Program management, Project Planning and Execution. Proven track record of Setting up and establishing new businesses grounds up, Mobilizing the organization, Augmenting organizational capabilities, Creating business and technical partnerships, and effective Customer relationship management. Looking to integrate into the workforce post maternity hiatus of 71/2 years.
